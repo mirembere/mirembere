@@ -1,0 +1,5 @@
+- 👋 Hi, I’m new to the space
+- 👀 I’m interested in technology, travel and food
+- 🌱 I’m currently learning ChatGPT
+- 😄 Pronouns: Does it matter?
+- ⚡ Fun fact: Always open your mind to new possibilities. That's how I travel across 4 continents.  
